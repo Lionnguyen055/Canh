@@ -7,14 +7,3 @@ CharlotteLucas758@icloud.com
 GwenMiles3737@icloud.com
 ZariahWilcox000@icloud.com
 CamillaParrish633@icloud.com
-ChaseBartoletti0202@icloud.com
-EldaFarrell@icloud.com
-NigelYost123@icloud.com
-LorenEffertz0109@icloud.com
-LaviniaBraun95@icloud.com
-SalvadorKunde@icloud.com
-AldaWaters0902@icloud.com
-JettStroman@icloud.com
-AdolphusOrn@icloud.com
-MelvinaBreitenberg@icloud.com
-AzaleaBarrera1910@icloud.com
